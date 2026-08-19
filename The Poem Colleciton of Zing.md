@@ -38,3 +38,38 @@ In this end, I do not care if it is lightness anymore.
 
 Cause we complement each other and see each as beautiful like looking into the mirror.
 
+# Blue Steam Wheel
+
+Sky connects to the ocean
+
+It even confuses the blue whale
+
+Where I can find a place that the sky and the ocean that connects?
+
+Asked the blue whale
+
+Let us try and catch
+
+If this world is real
+
+Say hello world in whale language
+
+Which kind of language does Blue Whale speak?
+
+A bit of swing of the tail and breath of of water streams
+
+The ocean and the sky are connected as high as the jet streams blowing up by the whale.
+
+The answer to the secret between the sky and the ocean, caught a whale breathless is the smile of the sky.
+
+For all the clouds drift by, those are the whales hoping for in their own eyes.
+
+For this galance of life, we can all rest and enjoy the sight.
+
+How does the whale smile with the sky?
+
+Water, air, and mixture of steam.
+
+Cho Cho comes the train of thoughts.
+
+We will follow each other: cloud, steam, and the engine for a smile.
